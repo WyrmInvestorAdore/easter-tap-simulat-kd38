@@ -1,4 +1,4 @@
-#  
+#  easter tap simulator Scripts smart offers the most advanced easter tap simulator Script, with auto-upgrade and anti-ban. Perfect for dominating any
 
 
 
